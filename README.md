@@ -1,1 +1,1 @@
-[点击观看](http://yy.qimengyule.top)
+[七梦影视点击观看](http://www.qimengyule.xyz)
